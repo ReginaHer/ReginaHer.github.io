@@ -12,3 +12,5 @@ Tim und Struppi (im französischsprachigen Original Les aventures de Tintin) ist
 
 > Oh! What a pleasant visons haunt me
 > As i gaze upon the sea!
+
+<img src="https://www.flickr.com/photos/imuttoo/3391142666"/>
